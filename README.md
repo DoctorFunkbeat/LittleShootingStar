@@ -6,3 +6,14 @@
 # Us core!! :3 
 
 <img width="640" height="640" alt="IMG_4482" src="https://github.com/user-attachments/assets/3c1b9a21-1008-47d7-8937-fe39f23e9fb5" />
+
+
+<img width="564" height="559" alt="Untitled19_20260524200211" src="https://github.com/user-attachments/assets/f390974a-5de9-432a-bf0f-5346c08b8ae5" />
+
+
+
+#  random lovemails!
+
+HIHI SIS ILYSM OKKKK🥺🥺 THANK U FOR ACEEOTING ME FOR WHO I AM AND BEING A SUPPORTIVE SISTER UR GENUINELY THE BEST ILYYY🥺🥺❤️❤️ 
+
+
