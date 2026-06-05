@@ -17,7 +17,9 @@
 
 <img width="564" height="559" alt="Untitled19_20260524200211" src="https://github.com/user-attachments/assets/f390974a-5de9-432a-bf0f-5346c08b8ae5" />
 
+<img width="600" height="437" alt="IMG_4933" src="https://github.com/user-attachments/assets/e84610c4-549a-4e1f-861b-f4efe287f532" />
 
+**Us stargazing ok..?**
 
 #  𝐋𝐨𝐯𝐞𝐦𝐚𝐢𝐥𝐬 / 𝐌𝐞𝐬𝐬𝐚𝐠𝐞𝐬 ᯓᡣ𐭩
 
