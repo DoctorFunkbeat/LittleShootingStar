@@ -35,3 +35,7 @@ HI AGAINNNN UHH TIME TO SAY STUFF ABT UUU
 FIRST UR SO KIND AND SILLY AND GENTLE AND EXTREMELY SUPPORTING AND SILLY AND UHH UHH MORE OK... thank u for being there for me ok...??? we WILL meet irl and stargaze irl ok...? You mean everything to me ily my dear star yayyyyyyyy!!!! *hugs you as we stargaze*
 
 . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
+
+Sas ... Hime ... where do I even start ? You truly were , and still are like my little brother . I love you /p . To be honest , I'm actually kinda tearing up while writing this . I'll never forget the AU's , the troops , the tondemo , the sasakure , the heat death of the SEKAI's , the reimomo netsu ijou au and the fanfic that i have never finished , the chatting during lessons , the first mikoto skin that you have gifted to me , the first RP's , building islands together and all of that . I still have over 30 screenshots of us chatting together , and you should know that I'll cherish these memories forever , as you were my first real friend .
+
+Rosalia out
