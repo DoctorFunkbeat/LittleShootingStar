@@ -8,6 +8,10 @@
 <img width="562" height="531" alt="IMG_4313" src="https://github.com/user-attachments/assets/ab3d836f-3de9-4737-b919-5c0e81b1cefe" />
 <img width="757" height="611" alt="IMG_4379" src="https://github.com/user-attachments/assets/4188070a-db3c-4dc2-a430-38786c15cd8f" />
 <img width="843" height="684" alt="IMG_4570" src="https://github.com/user-attachments/assets/68f393df-c157-4563-9f16-77d1c884aeaa" />
+<img width="756" height="500" alt="IMG_5336" src="https://github.com/user-attachments/assets/662ac5b3-f135-4e50-8974-57beb5f2cc0a" />
+<img width="601" height="365" alt="IMG_5335" src="https://github.com/user-attachments/assets/61a13eda-12af-4886-bef7-9f844451e2d5" />
+<img width="663" height="517" alt="IMG_5334" src="https://github.com/user-attachments/assets/9b9c23bb-1a2b-4d2e-84ea-501ad6075091" />
+
 
 
 # 𝐔𝐬 𝐜𝐨𝐫𝐞 !! ᰔ
