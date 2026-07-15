@@ -25,6 +25,14 @@
 
 **Us stargazing ok..?**
 
+
+# 𝐴𝑟𝑡𝑠 ˚.🎀༘⋆
+
+<img width="689" height="559" alt="1 year anniversary_20260715173421" src="https://github.com/user-attachments/assets/263037af-eb58-4275-a850-c9c2469a56ce" />
+
+
+
+
 #  𝐋𝐨𝐯𝐞𝐦𝐚𝐢𝐥𝐬 / 𝐌𝐞𝐬𝐬𝐚𝐠𝐞𝐬 ᯓᡣ𐭩
 
 HIHI SIS ILYSM OKKKK🥺🥺 THANK U FOR ACEEOTING ME FOR WHO I AM AND BEING A SUPPORTIVE SISTER UR GENUINELY THE BEST ILYYY🥺🥺❤️❤️ 
@@ -39,3 +47,4 @@ FIRST UR SO KIND AND SILLY AND GENTLE AND EXTREMELY SUPPORTING AND SILLY AND UHH
 Sas ... Hime ... where do I even start ? You truly were , and still are like my little brother . I love you /p . To be honest , I'm actually kinda tearing up while writing this . I'll never forget the AU's , the troops , the tondemo , the sasakure , the heat death of the SEKAI's , the reimomo netsu ijou au and the fanfic that i have never finished , the chatting during lessons , the first mikoto skin that you have gifted to me , the first RP's , building islands together and all of that . I still have over 30 screenshots of us chatting together , and you should know that I'll cherish these memories forever , as you were my first real friend .
 
 Rosalia out
+
