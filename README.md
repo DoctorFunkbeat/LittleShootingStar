@@ -1,3 +1,7 @@
+.edit 11.08- i know the friendship ended but i'll keep this for the memories٫ i still miss you Laika
+
+
+
 . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
 
 ˚₊‧꒰ა 𝟐𝟕.𝟎𝟗 ໒꒱ ‧₊˚
