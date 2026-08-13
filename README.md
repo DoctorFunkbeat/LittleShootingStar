@@ -1,4 +1,4 @@
-.edit 11.08- i know the friendship ended but i'll keep this for the memories٫ i still miss you Laika
+    edit 11.08- i know the friendship ended but i'll keep this for the memories٫ i still miss you Laika. i hope you’re happy nowadays ^^
 
 
 
