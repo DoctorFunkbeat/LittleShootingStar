@@ -1,3 +1,10 @@
+    edit. 01/09- Hey٫ i know you might never see this but٫ it's been almost a year since we met. Thank you for all the memories٫ Please stay the amazing person you are٫ if you ever wanna reach out٫ feel free to. Goodbye again. Stay safe and happy ^v^
+
+
+. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
+    
+    
+    
     edit 11.08- i know the friendship ended but i'll keep this for the memories٫ i still miss you Laika. i hope you’re happy nowadays ^^
 
 
