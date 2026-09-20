@@ -1,3 +1,10 @@
+        20.09- hey... a week left until 27.09. I miss you. I hope you are okay and happy nowadays. Again٫ i'll still cherish this day forever ^^
+    
+
+--------
+
+    
+
     edit. 01/09- Hey٫ i know you might never see this but٫ it's been almost a year since we met. Thank you for all the memories٫ Please stay the amazing person you are٫ if you ever wanna reach out٫ feel free to. Goodbye again. Stay safe and happy ^v^
 
 
